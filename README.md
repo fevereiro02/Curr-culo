@@ -1,7 +1,6 @@
-# Curr-culo
-MARIA EDNEIDE DANTAS DE AMORIM
-(DDD) 11911205299
-                                                   edneidedamorim@gmail.com
+# Curr-cul
+
+                                              
 
 ________________________________________
 
